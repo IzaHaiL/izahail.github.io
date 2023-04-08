@@ -1,2 +1,2 @@
 # izahail.github.io
-Personal pages blablaba
+Personal pages blablaba yang bener
